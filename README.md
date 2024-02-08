@@ -7,4 +7,6 @@ Meu nome é Maria Julia
   maria.zeglan@escola.pr.gov.br
   
   ![](https://media1.tenor.com/m/qzc9bkg5RNcAAAAC/but-why-tho.gif)
-  
+
+  ![](https://img.comunidades.net/col/colegiodompedropitanga/BRASAOAZUL.png
+)
